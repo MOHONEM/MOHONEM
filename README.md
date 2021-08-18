@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NematiMH
-- 👀 I’m interested in food and anything that a normal human enjoy.
+- 👀 I’m interested in... well, a lot of things!
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on any project dealing with data
 - 📫 How to reach me! just drop me a line or find me on Linkedin
